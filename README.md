@@ -1,0 +1,1 @@
+# tyt-fizik-planli-ders-foyu-2023-32
